@@ -2,7 +2,7 @@
 
 Just a small village rat looking to make it in the big cheese🧀
 
-Am student be *he/him*
+Do be *he/him*
 
 🔭 I’m currently working on something that consumes all of my coffee and provides me with mild satisfaction.
 
